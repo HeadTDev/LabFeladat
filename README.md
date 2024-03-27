@@ -1,0 +1,2 @@
+# LabFeladat
+nagyon nehéz, OOHHNNOOOOO
